@@ -59,7 +59,7 @@ Passionate about immersive tech, AI, and futuristic UI/UX experiences
 ## 📬 Contact
 
 Want to collaborate or learn more?  
-📧 Email: [your-email@example.com]  
+📧 Email: [arvindvramanan@gmail.com]  
 🔗 LinkedIn: [linkedin.com/in/arvind-v-ramanan](https://www.linkedin.com/in/arvind-v-ramanan)
 
 ---
